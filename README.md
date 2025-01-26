@@ -1,2 +1,2 @@
 # MareoLevis.github.io
-my website i add stuff onto when i am bored
+Stupid website I made while bored. Also where I put my games on for Petit Computer.
